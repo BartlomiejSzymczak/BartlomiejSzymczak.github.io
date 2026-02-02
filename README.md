@@ -1,0 +1,1 @@
+# BartlomiejSzymczak.github.io
